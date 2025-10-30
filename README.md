@@ -1,3 +1,3 @@
 - 👋 I’m @rainbowcircuit
-- 👀 I'm an artist/music technologist in nyc
+- 👀 I'm an artist/music technologist in Providence RI
 - 📫 hit me up at hey@rainbowcircuit.co
